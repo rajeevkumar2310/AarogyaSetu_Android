@@ -10,7 +10,7 @@ R S Mani
 Abhishek Singh  
 Dr. Seema Khanna  
 
-kpv of india
+not kpv of india
 ---------------------------------
 Industry and Academia Leadership
 ---------------------------------
